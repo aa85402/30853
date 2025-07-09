@@ -20,4 +20,4 @@
 本站还配有“用户评分系统”，根据观看人数、评分结果生成“推荐值排行榜”，帮助新用户快速找到好看的番号影片。无论你是新手还是老司机，都能在这里畅快看片，真正实现“日本AV免费，一站搞定”。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/30853 ）</span>
